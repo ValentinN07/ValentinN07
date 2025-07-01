@@ -1,5 +1,5 @@
 # 💫 !valentino am machen:
-Arbeite zurzeit in Minecraft Coding für LetsMaxeyTV für Challenge Plugins<br><br>Letztere Projekte:<br>Pi @ Atlantic Crimelife <br>Dev @ Azzlack City <br>Dev @ Lavida Roleplay<br>Dev @ Midnight Roleplay<br>Pl @ Favela Roleplay & Crimelife<br>UI Designer @ GLRP (sehr lange her)
+Arbeite zurzeit in Minecraft Coding für LetsMaxeyTV für Challenge Plugins<br><br>Letztere Projekte:<br>Developer @ Qseng Roleplay (soon) <br>Pi @ Atlantic Crimelife (soon) <br>Developer @ Azzlack City <br>Developer @ Lavida Roleplay<br>Developer @ Midnight Roleplay<br>Pl @ Favela Roleplay & Crimelife<br>UI Designer @ GLRP (sehr lange her)
 
 
 ## 🌐 Socials:
